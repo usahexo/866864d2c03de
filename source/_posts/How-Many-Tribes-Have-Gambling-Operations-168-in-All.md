@@ -1,0 +1,77 @@
+---
+title: How Many Tribes Have Gambling Operations 168 in All
+date: 2022-11-16 00:32:22
+categories:
+- Gambling Casino
+tags:
+---
+
+
+#  How Many Tribes Have Gambling Operations? 168 in All
+
+There are 168 federally recognized tribes in the United States with gambling operations, according to an Indian Affairs report compiled in April 2018. The report found that of those tribes, 100 have gaming machines, 93 operate casinos, and 77 offer bingo.
+
+The prevalence of gambling on tribal lands has raised concerns among some lawmakers and officials about the adequacy of protections for consumers and the integrity of the games. Some tribes have also faced criticism for failing to generate enough revenue to improve the lives of their members.
+
+The Indian Affairs report was compiled in response to a request from U.S. Sen. Elizabeth Warren (D-Massachusetts) last year, as she explored potential legislation aimed at boosting regulation of tribal gambling.
+
+Warren, who is running for president in 2020, has criticized tribes for not using their casino revenue to benefit all members equally. She has also pushed for stronger regulation of tribal gambling operations, arguing that they too often prey on vulnerable consumers and skirt federal rules.
+
+In a speech on the Senate floor in March, Warren said that “too many Native American communities are struggling while casino profits flow out of their reservation borders and into corporate coffers” and called for increased transparency and accountability from tribes engaged in gambling operations.
+
+#  Gambling on the Reservation: How Many Tribes Have Operations?
+
+_A total of 229 tribes have gambling operations as of 2016, according to the National Indian Gaming Commission (NIGC). This number is up from 178 in 2002._
+
+_Gaming on Native American land has become a booming business. In 1992, the first tribal casino opened in California. Over two decades later, there are now nearly 450 casinos and other gambling operations on Native American land across 28 states, according to the NIGC. The industry employs more than 80,000 people and generates more than $27 billion in revenue annually._
+
+_Tribes face a variety of challenges when it comes to gambling. The most obvious is how to ensure that gambling benefits the tribe and its members, rather than simply enriching outside investors. Tribes must also grapple with the social costs of gambling, such as addiction and bankruptcy._
+
+_The NIGC has released a series of reports on tribal gaming, including one on how tribes use their gambling revenues. According to the report, "the vast majority of both tribal government expenditures and payments to individuals are for critical government services such as public safety, education, and social services." Only a small fraction of revenue goes towards economic development or building infrastructure._
+
+_Many tribes see gambling as a way to preserve their cultures and traditions. For others, it's a source of much-needed revenue. Whatever the reason, it's clear that gambling is here to stay on America's reservations._
+
+#  Tribal Gaming Continues to Grow: 168 Tribes Offer Gambling Operations
+
+The gambling industry is booming, and tribal gaming is at the forefront of this growth. A recent report found that 168 tribes now offer some type of gambling operation, up from 137 in 2017. Tribal gaming has become a critical economic engine for many Native American communities, generating nearly $32 billion in revenue between 2007 and 2017.
+
+There are numerous reasons for the growth of tribal gaming. First, many states have expanded their gambling offerings in recent years, which has helped to drive demand for tribal gambling operations. Second, tribes have become more innovative in the types of games they offer, including casino-style games, sports betting, and online gambling. Third, tribes are increasingly partnering with private companies to develop and operate gaming facilities.
+
+The growth of tribal gaming has created new opportunities and challenges for tribes and the surrounding communities. Tribes have been able to generate significant revenue and create jobs, but there is also potential for negative social and economic impacts if gambling operations are not well-managed. It is important for tribes to carefully assess the potential risks and benefits of gambling before proceeding with any new gaming project.
+
+#  Gaming on the Rez: A Look at How Many Tribes Operate Gambling Facilities
+
+Gaming on the Rez refers to the growing number of tribes that operate gambling facilities, most notably casinos. The proliferation of gaming on Indian reservations has occurred in response to a change in federal law in 1988 that allowed tribes to operate gaming facilities as long as the state in which the reservation is located also permits gambling. 
+
+There are now over 430 gaming facilities operated by 240 tribes across 28 states. The total value of gaming revenue generated by these operations was $32.5 billion in 2016, an increase from the previous year’s total of $27.3 billion. This growth is attributable to an increase in the number of gaming venues as well as in the amount wagered per venue. In 2016, the average casino generated $76 million in revenue, up from $69 million in 2015.
+
+The vast majority of tribes operating gaming facilities are small, with only nine generating more than $100 million in revenue annually. The largest tribe by far is the Navajo Nation, which generates more than $500 million a year from its three casinos. The next largest tribe is the Tulalip Tribes of Washington, which generates just over $300 million a year from its two casinos.
+
+Tribes have used the revenues generated from gaming to fund a wide variety of important programs and services. In addition to directly funding tribal government services, such as education and health care, gaming revenues have been used to build new schools and hospitals, upgrade infrastructure, and provide scholarships and other financial assistance to tribal members.
+
+#  Gambling Amongst the Tribes: A Comprehensive List of All Gaming Operations
+
+When most people think of gambling, the first thing that comes to mind is the glitz and glamour of Las Vegas. However, there are many other places in the world where people can gamble, including some tribal casinos in the United States.
+
+While many tribe-owned casinos offer the same games as traditional casinos (e.g., blackjack, roulette, etc.), others focus on games that are specific to their culture or heritage. For example, the Mohegan Sun in Connecticut offers bingo, while the Foxwoods Resort Casino in Connecticut features slots and poker.
+
+If you're looking for a comprehensive list of all tribal gaming operations in the United States, you've come to the right place. Below is a complete list of all Indian gaming facilities in operation as of January 1st, 2018.
+
+Anchorage Marriott Hotel - Anchorage, AK
+
+Blue Lake Casino & Hotel - Blue Lake, CA
+
+Cache Creek Casino Resort - Brooks, CA
+
+CAHEALA Gaming Commission - Albuquerque, NM
+
+Cahuilla Casino - Anza, CA
+
+Central City Opera House Association - Central City, CO
+
+Cherry Valley Lodge & Spa - Cherry Valley, CA
+
+Chinook Winds Casino Resort - Lincoln City, OR
+
+
+ Colusa Casino Resort - Colusa, CA Copper Queen Hotel & Gambling Hall - Bisbee, AZ Cow Creek Band of Umpqua Indians of Oregon - Roseburg, OR Crazy Horse Casino - Porcupine,, SD Creek Nation Entertainment Corporation d/b/a Hard Rock Hotel & Casino Tulsa - Catoosa,, OK Del Lago Resort and Casino - Waterloo,, NY Desert Diamond Casinos and Entertainment LLC d/b/a Sahuarita Desert Diamond West Valley Casino - Glendale,, AZ Diamond Jo Worth County Gaming Corporation d/b/a Diamond Jo Worth County Casino & Events Center - Northwood,, IA Dine'n'Dash Restaurant Inc. d/b/a Choctaw Durant Choctaw Pines Golf Course-Durant,, OK Eastern Shawnee Tribe of Oklahoma - Miami,, OK Elk Valley RancheriaTribe of California – Amador CountyElk Grove Village d/b/a Thunder Valley Casino Resort – Lincoln,, CA Enterprise Rancheria of Maidu Indians of California – Challenge(), CA Ernie's card room Inc. d/b/a Norm's Card Room – Garden Grove,, CA Federated Indians Of Graton Ranchere – Forestville(), CA Flandreau Santee Sioux Tribe – Flandreau(), SD Fort McDowell Yavapai Nation – Fort McDowell(), AZ Foxwoods ResortCasino – Mashantucket,, CT Friendswood Development Company LLC d/b/a Naskila Gaming-Livingston,, TX Grand Sierra Resort and Casino Reno – Reno,, NV Greater Kankakee Airport Authority d/b/a Gateway Casinos Plainfield – Plainfield,,,, IN Greenville Little River Band Of Ottawa Indians Michigan – Greenville,,,, MI Grindstone Charley's Inc. dba Belmont BingoGrindstone Nation Enterprises Ltd Partnership dba Turning Stone Resort Casino-Verona,,,, NY Harrah's Ak-Chin Entertainment Center Phoenix – Maricopa County Harrah's Cherokee CE Event Facility Cherokee NC–Cherokee County Hasardeur Quebec Inc.- Pointe Claire(West Island), QC Hoh Indian Tribe Washington–Hoh RiverValley(), WA Hoopa Valley Tribe California–HoopaValley(Orleans),CA Ilani Cowlitz Indian Tribes Washington–La Center(), WA Ione Band Of Miwok Indians California–Ione(), CA Isleta Pueblo New Mexico–Albuquerque(), NM Kaw Nation Oklahoma–Newkirk (),OK Kiowa Red People Kansas; Carnegie , OK Konocti Viticulture Incorporated dba Graton Ridge Cellars-Konocti Harbor , CA Lac Vieux DesertBand Of Lake Superior Chippewa Indians Michigan; Watersmeet (), MI La Jolla BandOf Luiseno Mission Indians California; PaumaValley(San Diego),CA Leelanau Bay Indian Community Michigan; Peshawbestown (Traverse City),MI Lipan Apache Tribe Texas; San AntonioMission Trail(); TX Little River Band Of Ottawa Indians Michigan; Manistee (),MI Lone Pine PaiuteShoshone Tribe California; Bishop (),CA Lower Elwha Klallam Tribe Washington; Port Angeles (),WA Lummi NationWashington; Bellingham (),WA Makah Indian NationWashington Neah Bay (Clallam County), WA Manchester Unity Metallic Mining Co Main Street Commerce casino Commerce ,CA Mescalero ApacheLas Cruces ,NM Miami Tribeof Oklahoma Bacone College Muskogee ,OK Mille Lacs BandOf Ojibwe Minnesota Hinckley ,MN MorongoBandOf Mission Indians California Cabazon (San Bernardino County) ,CA National Indian Gaming Commission
